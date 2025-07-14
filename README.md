@@ -16,7 +16,7 @@
 - 💡 More coming soon...
 
 ### 📫 Let's Connect:
-- [LinkedIn](https:linkedin.com/in/shashank-tiwari-64b063334) 
+- [LinkedIn](https:www.linkedin.com/in/shashank-tiwari-64b063334) 
 - 📩 Email:Shashanktiwari258@gmail.com
 
 ---
